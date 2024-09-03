@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @afzzalll
+- 👀 I’m interested in Machine Learning, Robotics
+- 🌱 I’m currently learning Machine Learning
+- 📫 How to reach me ... instagram : @afzzalll
+- 😄 Pronouns: ... he/him
